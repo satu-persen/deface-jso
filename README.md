@@ -58,8 +58,16 @@ kelebihan premium
 hehe maaf ya mahal 😁
 
 
-lagi butuh nih.
+lagi butuh hehe😁.
 pembeli pertama dapet bonus 
+
+
+mau gratis? kekurangan nya delay aja 5 detik🗿
+
+cara nya?
+```
+satu-aja.py
+```
 
 
 
