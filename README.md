@@ -37,7 +37,7 @@ python3 free.py
 ```
 
 <h9>*Catatan: ini free jika ingin yang premium masuk saluran WhatsApp aja
-atau bisa chat wa.me/6283841852697 </h9>
+atau bisa chat https://wa.me/6283841852697 </h9>
 
 
 
