@@ -70,4 +70,8 @@ satu-aja.py
 ```
 
 
+5.000 dapet spam deface jso sama spam WhatsApp & SMS
 
+10.000 dapet Spm Wa&SMS, deface, gapus deface,spam ngl
+
+chat 083841852697
