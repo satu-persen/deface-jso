@@ -3,3 +3,9 @@ dasar ga sigma eiei🎶
 
 
 oh iya gw jg pernah recode punya orang juga sih ei ei sc nya sc spam wa ei ei maafin gua ya ei ei🎶
+
+
+
+<a href="https://github.com/satu-persen/deface-jso/blob/main/tutor.md">
+      <button> tutorial nya </button>
+</a>
